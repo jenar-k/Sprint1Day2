@@ -1,1 +1,2 @@
-# Sprint1Day2
+Sprint 1 Day 2
+Nama : Jenar K
